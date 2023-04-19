@@ -1,3 +1,4 @@
+na eid  ke bad
 aj Eid sy phle
 na meri jan
 acha meri jan
